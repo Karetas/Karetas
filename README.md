@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Karetas from 🇱🇹 Lithuania 🇱🇹
 - 👀 I’m interested in basketball.
 - 🌱 I’m currently learning physics
-- 💞️ I’m looking to collaborate on my crush.
+- 💞️ I’m looking to collaborate with my crush.
 - 📫 How to reach me through my github profile or mb.sakerta@gmail.com
